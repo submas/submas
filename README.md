@@ -2,6 +2,4 @@ hi my name is ash. i like history and all things cute. im new to napolenic so li
 
 rentry [here](https://rentry.co/distaste) | annoy me [here](https://submas.atabook.org/)
 
-i own a few other accs on here. @nimbasacity @arcphone @sdra2 @jamato-P
-
 my interests are a wideeeee spectrum. also also my public chat is off i can't see when you talk to me so pleaaase whisper ~
